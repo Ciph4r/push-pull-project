@@ -12,3 +12,5 @@ korean bbq
 call of duty or destiny 
 call of duty
 whats your fave car?
+gtr all the way!
+which part of nyc are you from?
