@@ -8,6 +8,7 @@ vikings
 whats your fave food?
 korean bbq 
 what was your mos?
+11b cuase god love the infantry
 
 call of duty or destiny 
 call of duty
