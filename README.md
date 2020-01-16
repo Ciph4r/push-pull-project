@@ -7,10 +7,11 @@ questions
 vikings
 whats your fave food?
 korean bbq 
-
+what was your mos?
 
 call of duty or destiny 
 call of duty
 whats your fave car?
 gtr all the way!
 which part of nyc are you from?
+I'm from central new jersey
