@@ -10,7 +10,7 @@ vikings
 korean bbq 
 
 3)what was your mos?
-11b cuase god love the infantry
+11b cause god love the infantry
 
 4)call of duty or destiny 
 call of duty
